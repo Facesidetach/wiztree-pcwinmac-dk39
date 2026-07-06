@@ -1,4 +1,4 @@
-# 
+# Nouveau WizTree scripts pour Mac OS | Avancé WizTree scripts pour PC Windows. Avec thèmes personnalisés et optimisation du registre — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
